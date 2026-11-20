@@ -1,6 +1,6 @@
 # Hi, I'm Anjali Pandey 👋
 
-### B.Sc. Information Technology Student | Aspiring Project Coordinator | Technology & Business Enthusiast
+**B.Sc. IT Student | Aspiring Project Coordinator | Technology, Business & Operations | Communication & Team Collaboration**
 
 Welcome to my GitHub profile!
 
